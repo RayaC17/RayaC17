@@ -1,8 +1,8 @@
 ## Hi there 👋
 
-Here are some ideas to get you started❤️
+**Here are some ideas to get you started**❤️
 
-   Meu nome é Rayanne Cristina
+   Meu nome é **Rayanne Cristina**
 
 -Estou estudando na Alura;
 
