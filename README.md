@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-Here are some ideas to get you started💟
+Here are some ideas to get you started❤️
 
    Meu nome é Rayanne Cristina
 
